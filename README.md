@@ -1,0 +1,1 @@
+Link to the database webpage: https://www.oecd.org/industry/ind/stanstructuralanalysisdatabase.htm
